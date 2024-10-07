@@ -1,4 +1,4 @@
-## Hi there 👋
+## Greetings, everyone! 👋
 
 <!--
 To peer nearly vainly out of a pinprick
