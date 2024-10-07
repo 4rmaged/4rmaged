@@ -4,10 +4,17 @@
 To peer nearly vainly out of a pinprick
 across a massive, sprawling internet,
 through a pinpick in a wall
+perspective
 
 happen across a stolid arm
-wandering by a breathing limb
+wandering circumstantially by a breathing limb
 
+might as well been already
+lost among posterity
+
+Yet 
+a hand
+or shoulder on which to mount
 
 
 
