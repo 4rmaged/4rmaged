@@ -12,7 +12,7 @@ wandering circumstantially by a breathing limb
 might as well been already
 lost among posterity
 
-Yet 
+Yet is feeble without
 a hand
 or shoulder on which to mount
 
